@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Daniel-Kitchen
+- 👀 I’m interested in Coding, cats, climbing, cooking, baking, gaming, and drumming!
+- 🌱 I’m currently learning Computer Science at the Rochester Institute of Technology
+- 💞️ I’m looking to collaborate on anything, hmu!
+- 📫 How to reach me: danielkitchen58@gmail.com
